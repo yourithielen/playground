@@ -1,0 +1,1 @@
+http://www.toptal.com/php/10-most-common-mistakes-php-programmers-make#.
